@@ -32,3 +32,9 @@ puis, tout le monde claque des main et des pied
 les garcons claque de la langue 
 
 les fille font des "ouuu ouuuu~"
+
+Et partout dans la rue
+
+Je veux qu'on parle de moi
+
+Que les filles soient...

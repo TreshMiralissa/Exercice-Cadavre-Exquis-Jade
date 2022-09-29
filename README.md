@@ -38,3 +38,9 @@ Et partout dans la rue
 Je veux qu'on parle de moi
 
 Que les filles soient...
+
+Et voila que ça part en bordelle a nouveau
+
+C'est quant on a du git dans la tête
+
+Push, Pull, Push, Pull, Merge, Commit, Push

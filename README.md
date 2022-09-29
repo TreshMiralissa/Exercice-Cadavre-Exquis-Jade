@@ -13,3 +13,10 @@ Ca me touchais a peine, j'aurais préfé dormire moi même
 Mais non faut me rendre à Liège.
 
 C'est l'heure de BeCode
+
+
+sur place je regarde si tout le monde est la.
+
+ha! non, il n'est que 6h30 du matin.
+
+un petit effort, je coupe mon reveil, j'ai réver.

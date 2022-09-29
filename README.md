@@ -8,7 +8,7 @@ Les gouttes de pluie glissaient le long de la vitre.
 
 Mon chat roule en boule dans son panier, dormait a point ferme.
 
-Ca me touchais a peine, j'aurais préfé dormire moi même
+Ca me touchais a peine, j'aurais préfére  dormir moi-même
 
 Mais non faut me rendre à Liège.
 
@@ -19,7 +19,7 @@ sur place je regarde si tout le monde est la.
 
 ha! non, il n'est que 6h30 du matin.
 
-un petit effort, je coupe mon reveil, j'ai réver.
+un petit effort, je coupe mon reveil, j'ai réve
 
 J'aime vraiment BeCode !
 
@@ -27,9 +27,9 @@ Les gens sont chouettes.
 
 Jade nous fait une petite session de chant.
 
-puis, tout le monde claque des main et des pied
+puis, tout le monde claque des mains et des pieds
 
-les garcons claque de la langue 
+les garcons claquent de la langue 
 
 les fille font des "ouuu ouuuu~"
 
@@ -39,7 +39,7 @@ Je veux qu'on parle de moi
 
 Que les filles soient...
 
-Et voila que ça part en bordelle a nouveau
+Et voila que ça part en bordel a nouveau
 
 C'est quant on a du git dans la tête
 

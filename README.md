@@ -20,3 +20,9 @@ sur place je regarde si tout le monde est la.
 ha! non, il n'est que 6h30 du matin.
 
 un petit effort, je coupe mon reveil, j'ai réver.
+
+J'aime vraiment BeCode !
+
+Les gens sont chouettes.
+
+Jade nous fait une petite session de chant.

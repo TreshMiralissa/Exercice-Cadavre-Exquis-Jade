@@ -26,3 +26,9 @@ J'aime vraiment BeCode !
 Les gens sont chouettes.
 
 Jade nous fait une petite session de chant.
+
+puis, tout le monde claque des main et des pied
+
+les garcons claque de la langue 
+
+les fille font des "ouuu ouuuu~"
